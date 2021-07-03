@@ -5,9 +5,6 @@ By ShipwreckV27 and Danbearpig82
 Ships links:
 ============================
 
-Ship's Discord:
-
-
 ShipwreckV27 Youtube:
 https://www.youtube.com/channel/UCGWFaFpSbGoji4KR0msgI0A
 
